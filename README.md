@@ -1,3 +1,3 @@
 vua phá hoại
 
-[](image/7164fe90-ad3c-432c-98b1-5f1f0851968e.jfif)
+![](image/e879e3e5-5d79-4aef-affb-ffe7dea63492.jfif)
